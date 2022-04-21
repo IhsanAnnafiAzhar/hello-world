@@ -3,7 +3,7 @@
 **Tebel**
 ~~wee~~
 
-Aljabar Elementer 2 Feb   [s](www.example.com)
+Aljabar Elementer 2 Feb   [s](https://www.example.com)
 
 Aljabar Elementer 9 Februari
 
