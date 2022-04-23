@@ -3,4 +3,6 @@
 **Tebel**
 ~~wee~~
 
-$\vee \alpha \frac{2}{2}$
+$\vee$ $\alpha$ 
+
+$\frac{2}{2}$
