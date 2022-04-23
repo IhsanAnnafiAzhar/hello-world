@@ -3,3 +3,4 @@
 **Tebel**
 ~~wee~~
 
+$\vee \alpha \frac{2}{2}$
