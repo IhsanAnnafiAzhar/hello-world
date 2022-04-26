@@ -39,6 +39,8 @@
 
 [Kalkulus Integral 11 April](https://photos.app.goo.gl/pdE7ppfBQm4NSkZp7)
 
+[Kalkulus Integral 25 April](https://photos.app.goo.gl/ugDumBpFA8zeGhDG9)
+
 ---
 
 [Teori Bilangan 8 Feb](https://photos.app.goo.gl/GwEdp7t3m1LQTAHw9)
