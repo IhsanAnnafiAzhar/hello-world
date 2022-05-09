@@ -43,6 +43,8 @@
 
 [Kalkulus Integral 25 April](https://photos.app.goo.gl/ugDumBpFA8zeGhDG9)
 
+[Kalkulus Integral 9 Mei](https://photos.app.goo.gl/r9eZJn7pZGAQaPP77)
+
 ---
 
 [Teori Bilangan 8 Feb](https://photos.app.goo.gl/GwEdp7t3m1LQTAHw9)
