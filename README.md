@@ -63,6 +63,8 @@
 
 [Teori Bilangan 12 Mei](https://photos.app.goo.gl/5CHbrthXULdJdQXW6)
 
+[Teori Bilangan 19 Mei](https://photos.app.goo.gl/XshDUaTBBvxzG5oy8)
+
 ---
 
 [Eng 18 Feb](https://photos.app.goo.gl/nLKW7kE8gNpkRFyYA)
