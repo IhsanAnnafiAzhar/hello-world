@@ -47,6 +47,8 @@
 
 [Kalkulus Integral 9 Mei](https://photos.app.goo.gl/r9eZJn7pZGAQaPP77)
 
+[Kalkulus Integral 23 Mei](https://photos.app.goo.gl/ovwLLSgWu7w5wqEXA)
+
 ---
 
 [Teori Bilangan 8 Feb](https://photos.app.goo.gl/GwEdp7t3m1LQTAHw9)
