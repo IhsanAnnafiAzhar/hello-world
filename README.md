@@ -69,6 +69,8 @@
 
 [Teori Bilangan 19 Mei](https://photos.app.goo.gl/XshDUaTBBvxzG5oy8)
 
+[Teori Bilangan 31 Mei](https://photos.app.goo.gl/SYbfNgj9yBtExcde6)
+
 ---
 
 [Eng 18 Feb](https://photos.app.goo.gl/nLKW7kE8gNpkRFyYA)
