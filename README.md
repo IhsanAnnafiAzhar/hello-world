@@ -27,6 +27,7 @@
 
 [Aljabar Elementer 25 Mei](https://photos.app.goo.gl/D7PajM8CWizxNbZV6)
 
+[Aljabar Elementer 3 Juni](https://photos.app.goo.gl/39outvpberi5hByw5)
 ---
 
 [Kalkulus Integral 31 Jan](https://photos.app.goo.gl/14EpUfuXArchAv538)
